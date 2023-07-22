@@ -1,4 +1,4 @@
-<p align="center"><a href="https://t.me/Themortalclan"><img src="https://te.legra.ph/file/7abe179ff252aaabbf2a5.jpg"></a></p>
+<p align="center"><a href="https://t.me/Themortalclan"><img src="https://graph.org/file/4a495e0cee5407cf88b19.jpg"></a></p>
 
 ━━━━━━━━━━━━━━━━━━━━━━
 
